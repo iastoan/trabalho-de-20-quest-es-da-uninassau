@@ -1,1 +1,1 @@
-# trabalho-de-20-quest-es-da-uninassau
+# trabalho-de-20-questões-da-uninassau
